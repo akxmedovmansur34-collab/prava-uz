@@ -1,2 +1,2 @@
-# prava-uz
+# pravajjjjjjj
 Uzbekistan Driving Test App
